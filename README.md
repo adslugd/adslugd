@@ -1,1 +1,1 @@
-![](https://autism.crd.co/assets/images/gallery05/69c38c38.gif?v=aaa3f391)
+![](https://pbs.twimg.com/media/HEOuTnHaYAADv6D?format=jpg&name=120x120)
